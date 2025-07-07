@@ -1,2 +1,2 @@
 Resume last updated on: 
-One-pager: 29/06/2025
+One-pager: 07/07/2025
