@@ -4,6 +4,6 @@
 - **Corporate Resume** — updated **07 Jul 2025**
 
 These PDFs may not always reflect the latest version.  
-For the most updated information, check my [LinkedIn](https://www.linkedin.com/in/samarthsharmabhardwaj/).
+For the most updated information, check out my [LinkedIn](https://www.linkedin.com/in/samarthsharmabhardwaj/)!
 
 
